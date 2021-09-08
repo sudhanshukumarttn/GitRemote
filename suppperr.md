@@ -1,1 +1,0 @@
-ungratefull human
